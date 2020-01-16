@@ -4,11 +4,11 @@
 
 ## 聚会视频观看点击下方链接, 手机观看使用优酷App扫描二维码
 
-- [27班毕业10周年同学相册视频](https://v.youku.com/v_show/id_XNDE5NjgzMzAwNA==.html)
+- [27班毕业10周年同学相册视频](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
 
 &emsp; &emsp; ![27班毕业10周年同学相册视频二维码](images/27班毕业10周年同学相册视频优酷观看二维码.png)
 
-- [新杰中学高27班毕业10周年聚首纪录片](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
+- [新杰中学高27班毕业10周年聚首纪录片](https://v.youku.com/v_show/id_XNDE5NjgzMzAwNA==.html)
 
 &emsp; &emsp; ![新杰中学高27班毕业10周年聚首纪录片二维码](images/新杰中学高27班毕业10周年聚首纪录片二维码.png)
 
