@@ -2,7 +2,7 @@
 
 ![合照](images/合照.JPG)
 
-## 聚会视频观看点击下方链接, 手机观看使用优酷App扫描二维码
+## 聚会视频观看点击下方链接, 二维码可以使用微信/优酷App扫描
 
 - [27班毕业10周年同学相册视频](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
 
