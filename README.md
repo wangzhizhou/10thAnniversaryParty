@@ -6,7 +6,7 @@
 
 1. 同学录视频: 
 
-    [![](https://v.qq.com/favicon.ico)腾讯视频](https://v.qq.com/x/page/b30531neydt.html) | [优酷](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
+    [腾讯视频](https://v.qq.com/x/page/b30531neydt.html) | [优酷](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
 
 2. 聚会视频
 
