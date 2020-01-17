@@ -2,15 +2,24 @@
 
 ![合照](images/合照.JPG)
 
-## 聚会视频观看点击下方链接, 二维码可以使用微信/优酷App扫描
+## 聚会视频
 
-- [27班毕业10周年同学相册视频](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
+1. 同学录视频: 
 
-&emsp; &emsp; ![27班毕业10周年同学相册视频二维码](images/27班毕业10周年同学相册视频优酷观看二维码.png)
+    [![](https://v.qq.com/favicon.ico)腾讯视频](https://v.qq.com/x/page/b30531neydt.html) | [优酷](https://v.youku.com/v_show/id_XNDA0OTE5OTYwNA==.html)
 
-- [新杰中学高27班毕业10周年聚首纪录片](https://v.youku.com/v_show/id_XNDE5NjgzMzAwNA==.html)
+2. 聚会视频
 
-&emsp; &emsp; ![新杰中学高27班毕业10周年聚首纪录片二维码](images/新杰中学高27班毕业10周年聚首纪录片二维码.png)
+    [腾讯视频](https://v.qq.com/x/page/b3053bhfp15.html) | [优酷](https://v.youku.com/v_show/id_XNDE5NjgzMzAwNA==.html)
+
+##  联系方式
+
+> 待录入
+
+
+
+序号|姓名|联系方式|
+---|---|---
 
 
 ## 相关照片原件和视频原件下载
